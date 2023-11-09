@@ -2,7 +2,7 @@
 ### *03: The Calypso Caper*
 
 
-In chapter three, something changes in Craig Doyle, Printing Press Shift Manager at the *LCP*.
+In chapter 3, something changes in Craig Doyle, Printing Press Shift Manager at the LCP.
 
 It starts like this; I see a suspicious-looking wheel bug hurry off with a case of green juice, and judging by the dimensions it contains 24 bottles or $72 worth of green juice. He definitely did not put $72 in the sombrero, and so this looks very much like stealing.
 
@@ -64,7 +64,7 @@ Hmm…
 
 *Craig Doyle & The Calypso Caper*
 
-My eyes widen and my pulse quickens -- this is it! This is the title of the chapter! My eyes narrow and I cast a furtive glance towards the thief -- yes, yes, he *must* be a thief, because if he isn’t, this burst of inspiration, and this bravery, will go to waste and I’ll have nothing for my novel. I decide then to follow the criminal and report my findings back to Colt, and together we can prevent anyone else from being the victim of this wheel bug’s petty larceny ever again.
+I suck in a breath and my pulse quickens -- this is it! This is the title of the chapter! My eyes narrow and I cast a furtive glance towards the thief -- yes, yes, he *must* be a thief, because if he isn’t, this burst of inspiration, and this bravery, will go to waste and I’ll have nothing for my novel. I decide then to follow the criminal and report my findings back to Colt, and together we can prevent anyone else from being the victim of this wheel bug’s petty larceny ever again.
 
 The thief disembarks at Bowry Yard, a popular stop not too far from the central station, and I wait a moment before filing off with some of the stragglers. It’s after 11pm but Bowry Yard has a lively nightlife, very hoppin’ with the young people, so to speak. It's vibrant with neon lights and pedestrians and music pouring out of bars, and the people are moving all about, walking, stumbling, dancing, and riding those little rent-a-scooters the city added last year, and it doesn’t look strange at all for me to head off in the same direction as the wheel bug.
 
@@ -74,21 +74,23 @@ It feels as though an invisible tether connects me and the thief, and the furthe
 
 I think these thoughts and I drift further from the wheel bug thief, and it’s like slowly waking up from a dream.
 
-But before I make the decision to turn around, the wheel bug crosses a yard and walks up to a two-story house. 
+But before I make the decision to turn around, the wheel bug crosses a yard and walks up to a two-story house with two front doors, one on the right side and one on the left.
 
-Now this neighborhood is not a very nice one, and the house is no different – not trashed or in disrepair, but quite old with peeling paint and some fallen gutters. A walkway bisects the front yard, and on the left side of the yard there are many decorations, including a large rainbow flag and a gnome which appears to be smoking some illegal contraband. And displayed in big letters across the front of the house there’s a large sign which reads:
+Now this neighborhood is not a very nice one, and the house is no different -- not trashed, but quite old with peeling paint and some fallen gutters. A walkway bisects the front yard, and on the left side of the yard there are many decorations, including a large rainbow tie-dye flag and a garden gnome smoking illegal contraband. A large sign fans over the front door on the left, boldly declaring:
 
-*CALYPSO GREEN JUICE*
-(Please inquire within or call 555-GRN-JUCE)
+*CALYPSO GREEN JUICE* </br>
+*(Please inquire within or call 555-GRN-JUCE)*
 
 Complete with the logo of the grasshopper playing trumpet. 
 
-And the wheel bug juggles the case of juice long enough to get the door open and go inside.
+The wheel bug juggles the case of juice long enough to open the rightside door, then he disappears inside.
 
-The door closes and I stare at it for a moment. And I stare at the *Calypso* sign for a moment. And I feel very confused, uncertain, silly, and disappointed all at the same time. The *Calypso Caper* is a farce. I should go home.
+The door closes and I stare at the duplex for a moment. I stare at the *Calypso* sign. And I feel very confused, uncertain, silly, and disappointed all at the same time. The *Calypso Caper* is a farce. I should go home.
 
 I hang my head and turn to walk back to the station.
 
-Suddenly a series of bangs and crashes resound from inside the two-story house, followed by a string of colorful curses and a series of thumps. It sounds very much like something thin and hunched rolling down a flight of stairs, and thudding against the front door. Without thinking I hurry down the sidewalk bisecting the yard, and it’s not until I get near the porch that I realize how awkward of a position I’m in. I had stalked this guy all the way from central station to Bowry, and then followed him all the way to his house. And he probably isn’t even a thief!
+Suddenly a series of bangs and crashes resound from within the rightside of the duplex, followed by a string of colorful curses and cascading thumps. It sounds very much like something thin and hunched rolling down a flight of stairs and crashing at the bottom, with bottles of green juice bouncing along with him. Without thinking, I hurry down the sidewalk bisecting the yard, and it’s not until I get near the porch that I realize how awkward of a position I’m in. I had stalked this guy all the way from the downtown station to Bowry Yard, and then followed him all the way to his house. And he probably isn’t even a thief!
 
-I feel the clammies coming on. I hear some groaning from behind the front door, but I hesitate.
+I feel the clammies coming on. I hear groaning from behind the front door, but I hesitate, unsure of what to do next.
+
+---
