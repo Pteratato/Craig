@@ -33,7 +33,7 @@ The back end of the building is called ‘lot-side’ because of the parking lot
 
 The LCP doesn’t run a 3rd shift, so not a single soul is in the building at this time of morning, and that’s how I like it best.
 
-I unlock the lot-side door and huff up the stairs to my third floor office, which sports a plaque with the following text in *Times New Roman*.
+I unlock the lot-side door and huff up the stairs to my third floor office, which sports a plaque with the following text in *Times New Roman*:
 
 *Craig Doyle*</br>
 *Printing Press Shift Manager*
