@@ -1,3 +1,6 @@
+ # *Craig!*
+### *04: Harold Booker*
+
 Insects make much more sense than humans.
 
 With insects, you know what to expect. There are good aspects and bad aspects, but when you encounter an insect you have a pretty solid idea of how that creature will behave.
