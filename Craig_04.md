@@ -73,7 +73,7 @@ I stand up tall, mildly indignant at being called ‘kid’. “Craig Doyle.”
 
 “I’m Jet. C’mon, then. You want coffee, tea, whiskey? If yer gonna be in my house, might as well have a drink.”
 
-—
+---
 
 The warm, yellow glow from Jet’s old lamps does much to improve the atmosphere of the apartment, and I find myself quickly relaxing in the old man’s presence. I’m amazed at myself for all of this; I’ve never done anything like this before, meeting random people and staying in their homes and holding my ground. Normally I’d back off, wilt, retreat, just wanting to live peaceably like a June beetle. But I was bold enough to come this far, and I don’t want to jeopardize that now.
 
@@ -119,9 +119,4 @@ And I spy, underneath a table, bottles of green juice, most of them with no labe
 
 I look back at Jet, who is now rolling up a cigarette with loose-leaf tobacco, allowing me the space to come up with my answer.
 
-—
-
-Vote: Who should Craig allow to change his life?
-
--Work with Jet
--Work with Colt
+---
