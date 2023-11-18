@@ -13,7 +13,7 @@ I brew a single serving of coffee and mix up a bowl of oatmeal with raisins and 
 
 Today feels like a pinstriping kind of day.
 
-I can tell it’s going to be a lucky sort of day, so I pull on my favorite socks for good measure. They’re pineapple argyle with green accents, and stitched little ants marching along the pattern lines. They were a stocking stuffing from Madison many Christmases ago, and they have a bit of magic to them. I feel bolder when I wear that pineapple argyle.
+I can tell it’s going to be a lucky sort of day, so I pull on my favorite socks for good measure. They’re pineapple argyle with green accents, and stitched little ants marching along the pattern lines. They were a stocking stuffer from Madison many Christmases ago, and they have a bit of magic to them. I feel bolder when I wear that pineapple argyle.
 
 I head out the door 4.5 minutes earlier than usual, and this is another lucky sign.
 
